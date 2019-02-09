@@ -10,7 +10,6 @@ More Interests on:-
 
 - cycling
 - music
-![alt text](https://unsplash.com/photos/JzkgpML_8XI/200/200)
 
 - many more
 
